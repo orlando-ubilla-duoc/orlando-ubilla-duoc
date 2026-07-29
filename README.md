@@ -1,3 +1,4 @@
+![Duoc UC](https://www.duoc.cl/wp-content/uploads/2022/09/logo-0.png)
 # Orlando Ubilla
 **Analista Programador Computacional**<br />
 ✉️ or.ubilla@duocuc.cl <br />
